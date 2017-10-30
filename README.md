@@ -49,3 +49,4 @@
 ### Youtube playlists
 
 1. gkcs(https://www.youtube.com/channel/UCRPMAqdtSgd0Ipeef7iFsKw)
+2. funk(https://www.youtube.com/watch?v=_P7S2lKif-A&list=RDQMlm_DxvMgfYo)
